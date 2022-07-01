@@ -1,7 +1,7 @@
-### Nikhil's Github
+### 🦧🦍🦜Nikhil's Github🦜🦍🦧
 
-🦧🦧Here are some ideas to get you started:
+Here are some things about me:
 
-- 🔭 I’m currently working on ...
-- :dog: another line
+- 🔭 I’m currently working on mass loss rates for massive stars
+- ✉️ email: npatten@uwyo.edu
 
