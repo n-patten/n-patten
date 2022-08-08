@@ -9,6 +9,8 @@ Here are some things about me:
 - ✉️ My email: npatten@uwyo.edu
 - 🌐 I am learning the Irish language, Gaeilge 🇮🇪 and I am always looking for an opportunity to improve my skills!
 
-**Is fearr Gaeilge bhriste ná Béarla cliste!**☘️
+**Is fearr Gaeilge bhriste ná Béarla cliste!**
+
+☘️
 
 Feel free to reach out to me about anything!
