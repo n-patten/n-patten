@@ -1,4 +1,4 @@
-###🦧🦍🦜Nikhil's Github🦜🦍🦧
+### 🦧🦍🦜Nikhil's Github🦜🦍🦧
 
 Welcome to my Github! I am a second-year astronomy graduate student at the University of Wyoming.
 
