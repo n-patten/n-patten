@@ -1,6 +1,6 @@
 ### 🦧🦍🦜Nikhil's Github🦜🦍🦧
 
-Welcome to my Github! I am a second-year astronomy graduate student.
+Welcome to my Github!
 
 Here are some things about me:
 
