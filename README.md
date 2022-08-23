@@ -4,9 +4,9 @@ Welcome to my Github! I am a second-year astronomy graduate student.
 
 Here are some things about me:
 
-- ✏️ I am a student at the University of Wyoming 🤠
+- ✏️ Student at the University of Wyoming 🤠
 - 🏖️ I am from New Jersey
-- 🔭 I am researching mass-loss rates for massive stars using infrared bowshock data 🌟
+- 🔭 Researching mass-loss rates for massive stars using infrared bowshock data 🌟
 - ✉️ My email: npatten@uwyo.edu
 - 🌐 I am learning the Irish language, Gaeilge 🇮🇪 and I am always looking for an opportunity to improve my skills!
 
