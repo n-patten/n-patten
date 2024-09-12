@@ -14,4 +14,4 @@ Here are some things about me:
 
 Feel free to reach out to me about anything!
 
-​🇵🇸​فلسطين الحرة
+​🇵🇸​فلسطين الحرة🇵🇸​
